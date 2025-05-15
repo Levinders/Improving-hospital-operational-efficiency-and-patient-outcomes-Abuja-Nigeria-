@@ -1,2 +1,2 @@
-# Improving-hospital-operational-efficiency-and-patient-outcomes-Abuja-Nigeria-
+# Improving Hospital Operational Efficiency and Patient Outcomes (Abuja, Nigeria)
 Case Study: The Analyst Hub
